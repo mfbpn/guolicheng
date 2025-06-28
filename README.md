@@ -1,6 +1,6 @@
 # 果粒橙机场官网地址
 
-最新地址：[guolicheng.cc](https://guolicheng.cc/index.php#/register?code=GWPpEyyx)
+最新地址：[guolicheng.cc](https://guolicheng.cc/index.php#/register?code=9LwVWIPo)
 
 ## 简介
 
